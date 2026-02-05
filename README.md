@@ -1,5 +1,4 @@
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=D6BAC8)
 <p align="center">
 ᨳ the devil is a gentleman ᢉ𐭩
 <p align="center">
